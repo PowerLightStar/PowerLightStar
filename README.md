@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+Teams: https://teams.live.com/l/invite/FBALE-GyFqVcRdi1Ag?v=g1
+Email: starworkpro@gmail.com
+TG: @forest_0000
+
 <!--
 **PowerLightStar/PowerLightStar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
